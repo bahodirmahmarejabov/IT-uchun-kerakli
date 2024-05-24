@@ -1,0 +1,1 @@
+# IT-uchun-kerakli
